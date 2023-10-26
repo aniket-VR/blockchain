@@ -1,0 +1,1 @@
+# blockchain-mini-project-genuine-charity
